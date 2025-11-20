@@ -19,3 +19,8 @@ An easy recipe to make delicious Potato Puncakes, Draniki!
 [Archived Link](https://web.archive.org/web/20240227143637/https://tastesbetterfromscratch.com/mississippi-mud-brownies/)
 
 My grandmas mississippi mud recipe is a lot different. This one has marshmallows?
+
+## [Banana Bread](https://www.allrecipes.com/recipe/20144/banana-banana-bread/)
+[Archived Link](PLACEHOLDER)
+
+A simple, easy, and tasty recipe for banana bread. Add chocolate chips for extra sweetness!
