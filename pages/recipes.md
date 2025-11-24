@@ -19,3 +19,8 @@ An easy recipe to make delicious Potato Puncakes, Draniki!
 [Archived Link](https://web.archive.org/web/20240227143637/https://tastesbetterfromscratch.com/mississippi-mud-brownies/)
 
 My grandmas mississippi mud recipe is a lot different. This one has marshmallows?
+
+## [Million Dollar Spaghetti](https://tastesbetterfromscratch.com/million-dollar-spaghetti/)
+[Archived Link](https://web.archive.org/web/20250714073456/https://tastesbetterfromscratch.com/million-dollar-spaghetti/)
+
+A tasty, budget-friendly version of some delicious spaghetti casserole!
